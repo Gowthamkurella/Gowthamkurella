@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **gowtham.kurella.12@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1eyXk93bf1ewb4F71k_7B1PhkhkNY_XnC/view?usp=sharing](https://drive.google.com/file/d/1eyXk93bf1ewb4F71k_7B1PhkhkNY_XnC/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1BB-MGmwc7CCReJvwJ-LZpjlm9u9xPAiE/view?usp=sharing](https://drive.google.com/file/d/1BB-MGmwc7CCReJvwJ-LZpjlm9u9xPAiE/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
